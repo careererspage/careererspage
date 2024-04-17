@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @careererspage
+- 👋 Hi, I’m dave
 - 👀 I’m interested in creating whatever comes to your business mind
 - 🌱 I’m currently develop for small firms across Erupoe
 - 💞️ I’m not looking for collaboration so don't bother
